@@ -34,4 +34,4 @@ So, what say you?
 
 I am going to start, anyone wanting to join is welcome to contribute, there is a lot to do and not enough time in the day to do it, but one thing I have learned so far in life is, Do not underestimate the common man, he is truly the machine that makes the world turn, Not Money, as there is no money...SAVVY'
 
-Ben Sovereign House-Of THOMPSON
+Ben & Les Sovereign House-Of THOMPSON
