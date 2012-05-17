@@ -3,7 +3,7 @@ Aotearoa-Carta-Magna
 
 for the creation of a Constitution or Charter, a Carta Magna for Aotearoa known as NZ
 
-
+**(TO VIEW ALL FILES IN ACM REGISTER FREE WITH GITHUB AND YOU CAN :-)
 
 What is Maori Lore & Common law in Aotearoa NZ?
 
